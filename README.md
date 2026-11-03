@@ -1,1 +1,0 @@
-# Aresta-Sponsorship-2026
